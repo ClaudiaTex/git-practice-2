@@ -1,1 +1,1 @@
-Practica clase 1 prueba conflicts
+Practica clase
